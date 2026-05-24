@@ -1,0 +1,2 @@
+# -mystery-train-law-and-fiction.md
+Jeremy Bentham's buried theory of fictions, recovered as a working tool: the legal fiction, the IP right, the author-function, and the manufactured art edition are one object — impossible-yet-indispensable entities that owe their existence to language alone. Paraphrasis is how you read them back to the real. Shit from Shinola.
